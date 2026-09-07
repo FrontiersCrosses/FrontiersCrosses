@@ -1,6 +1,7 @@
-ㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <a href="https://pinkmaggit.straw.page">𝒔𝒕𝒓𝒂𝒘𝒑𝒂𝒈𝒆!
-ㅤㅤㅤㅤㅤㅤ
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ
 <a href="https://pinkcellphone.atabook.org">𝒂𝒕𝒂𝒃𝒐𝒐𝒌!
 
 ㅤㅤㅤㅤㅤㅤㅤ
